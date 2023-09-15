@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Abhishek-Arora-1
 - 👀 I’m interested in everything that beneficial for me.
-- 🌱 I’m currently learning japanese and coding
+- 🌱 I’m currently learning languages (japanese and visual basc for applications )
 - 💞️ I’m looking to collaborate on projects for Microsoft Excel
 - 📫 How to reach me ... abhi_akin@yahoo.in
 
